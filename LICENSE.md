@@ -1,4 +1,4 @@
-
+elite Gimp for macOS Preset | color correction + gradient maps offers the most advanced Gimp for macOS preset, with color correction and gradient maps. Ideal for professional
 
 
 
